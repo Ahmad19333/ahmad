@@ -1,2 +1,0 @@
-# ahmad
-The rell indonesis
